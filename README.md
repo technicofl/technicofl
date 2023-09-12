@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @technicofl
 
-When it comes to <a href="https://www.technicofl.com/">propane and natural gas products and supplies In Florida</a>, Technicofl is the leading provider in the industry. With our extensive range of high-quality products, exceptional customer service, and commitment to safety and reliability, we have earned the reputation as the best supplier in the market.
+When it comes to <a href="https://www.technicofl.com/">propane and <a href="https://www.technicofl.com/">natural gas</a> products and supplies In Florida</a>, Technicofl is the leading provider in the industry. With our extensive range of high-quality products, exceptional customer service, and commitment to safety and reliability, we have earned the reputation as the best supplier in the market.
 
 Technicofl offers a comprehensive selection of propane and natural gas products to meet the diverse needs of our customers. Whether you are a homeowner, business owner, or industry professional, we have the right solutions for you. From propane and natural gas tanks to regulators, fittings, valves, and other accessories, we have everything you need to set up and maintain a safe and efficient propane or natural gas system.
 
